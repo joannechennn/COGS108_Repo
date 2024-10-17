@@ -1,6 +1,7 @@
 # COGS108_Repo
 
-hellooooo
-im so tired
-i've gotten 3 hours of sleep today
-i yap WAY TOO much
+helloooo \n
+
+do you wanna know what's funnier than 24? \n
+
+25.....
